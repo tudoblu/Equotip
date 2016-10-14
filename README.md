@@ -1,0 +1,2 @@
+# Equotip
+Medidas de Equotip
